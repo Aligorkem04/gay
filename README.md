@@ -1,2 +1,0 @@
-Güzel
-Verano
